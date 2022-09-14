@@ -1,0 +1,3 @@
+-My name is. said.
+- My email is 221245@AKFAUNIVERSITY.ORG
+- my id is 221245 
